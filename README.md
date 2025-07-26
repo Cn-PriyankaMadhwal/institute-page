@@ -1,1 +1,1 @@
-# institute-page
+# Avditya-institute---landing-page
